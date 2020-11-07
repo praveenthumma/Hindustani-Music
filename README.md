@@ -1,1 +1,2 @@
-# Hindustani-Music as Thought by My Guru Mr.Prakash Shankar Bhandarkar
+# Hindustani-Music 
+## As Thaught by My Guru Mr.Prakash Shankar Bhandarkar
