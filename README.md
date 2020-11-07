@@ -1,2 +1,2 @@
 # Hindustani-Music 
-## As Thaught by My Guru Mr.Prakash Shankar Bhandarkar
+## As thaught by my guruji ## Mr.Prakash Shankar Bhandarkar ##
